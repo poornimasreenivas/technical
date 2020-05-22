@@ -1,6 +1,6 @@
-# Harideep K
-##### +91 8886520096
-##### harideep028@gmail.com
+# poornoma sreenivas
+##### +91 8790427682
+##### poornimasreenivas777@gmail.com
 
 ### Career Objective:
 Seeking a **challenging** *Job* to further enhance my skill set. 
@@ -9,7 +9,7 @@ Seeking a **challenging** *Job* to further enhance my skill set.
 
 Degree | Duration
 ---|---
-B.Tech | 4
+B.Tech | 2
 Inter | 2 
 SSC | 10
 
